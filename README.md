@@ -1,0 +1,1 @@
+# omerfarukgursel.github.io
